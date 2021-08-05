@@ -1,6 +1,6 @@
 # Gnaevs Cornelivs Corvinvs | ![visitors](https://visitor-badge.glitch.me/badge?page_id=GnaeusC/GnaeusC)
 
-I do a little trolling.
+We do a little trolling.
 
 - Repvblic server invite: https://discord.gg/ptHnQyjuGC
 - Repvblic
